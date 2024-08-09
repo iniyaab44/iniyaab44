@@ -1,8 +1,8 @@
-- 👋 Hi, I’m @iniyaab44 
+- 👋 Hi, I’m @iniyaab44 (main @abanusara99)
 - 👀 I’m interested in ... creative works
 - 🌱 I’m currently learning ... and practicing for projects
 - 💞️ I’m looking to collaborate on ... developers, clients, freelance clients  and companies who want developers with no experience also
-- 📫 How to reach me ...**iniyaanubala73@gmail.com**
+- 📫 How to reach me ...**abanubala77@gmail.com**
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ... Love creatives
 
